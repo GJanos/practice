@@ -1,2 +1,3 @@
 Hello, itt a teszt feltoltes. yeeeeee....
 Bruh.
+kerelek nem tudom mi van
